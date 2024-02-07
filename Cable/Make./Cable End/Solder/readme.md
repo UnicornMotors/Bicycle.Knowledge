@@ -1,0 +1,1 @@
+- [MikuniOz - How to Solder on a new a cable end](https://youtu.be/gX4gyTipRsU)
