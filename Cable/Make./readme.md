@@ -1,3 +1,5 @@
+# Favorite
+- [Repairing / Soldering a Motorized Bicycle Cable - Throttle Clutch or Brake](https://youtu.be/AOICBj0oeOc)
 - [How To Repair Brake/Throttle Cable Ends! (The Right Way)](https://youtu.be/LZYf92x-beQ)
 - [Bare Bones Busa #5, Made My Own Control Cables !](https://youtu.be/rySC6ULejRc)
 
