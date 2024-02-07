@@ -2,3 +2,4 @@
 
 # Relation:
 - [How To Make Custom Motorcycle Cables - Throttle](https://youtu.be/yu17lrDl8kg)
+- [how to make custom motorcycle cable lengths for throttle, clutch and brakes](https://youtu.be/FzARBO7Zcnc)
